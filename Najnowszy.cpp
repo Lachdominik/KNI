@@ -1,0 +1,1 @@
+Bardzo lubię MiNI
